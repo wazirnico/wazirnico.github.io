@@ -1,0 +1,1 @@
+# wazirnico.github.io
